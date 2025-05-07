@@ -25,7 +25,7 @@ Need help with setup? Want to customize it for your use case? Looking for help b
 
 Feel free to reach out:
 
-- 📱 Contact: +254701 416 017
+- 📱 WhatsApp: +254701 416 017
 - 📧 Email: [aronkipkorir254@gmail.com]
 
 Happy selling! 🎉
